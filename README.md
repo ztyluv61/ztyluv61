@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ztyluv61
-- 👀 I’m interested in Collecting stuffs  
+- 👀 I’m interested in Collecting Stuffs  
 - 🌱 I’m currently learning EVERYTHING!
 - 📫 How to reach me : zhang_tianyu95@163.com
 
